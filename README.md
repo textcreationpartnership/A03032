@@ -32,128 +32,133 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The riddles of Heraclitus and Democritus1598Approx. 52 KB of XML-encoded text transcribed from 16 1-
+PRopheſies, predictions,Stories and fictions,Allegories, rimes,And ſerious paſtimesFor all manner me
 #####Body#####
 
-1. 1
+1. The Riddles of Heraclitus
+and Democritus.
 
-1. 2
+    _ 1
 
-1. 3
+    _ 2
 
-1. 4
+    _ 3
 
-1. 5
+    _ 4
 
-1. 6
+    _ 5
 
-1. 7
+    _ 6
 
-1. 8
+    _ 7
 
-1. 9
+    _ 8
 
-1. 10
+    _ 9
 
-1. 11
+    _ 10
 
-1. 12
+    _ 11
 
-1. 13
+    _ 12
 
-1. 14
+    _ 13
 
-1. 15
+    _ 14
 
-1. 16
+    _ 15
 
-1. 17
+    _ 16
 
-1. 18
+    _ 17
 
-1. 19
+    _ 18
 
-1. 20
+    _ 19
 
-1. 21
+    _ 20
 
-1. 22
+    _ 21
 
-1. 23
+    _ 22
 
-1. 24
+    _ 23
 
-1. 25
+    _ 24
 
-1. 26
+    _ 25
 
-1. 27
+    _ 26
 
-1. 28
+    _ 27
 
-1. 29
+    _ 28
 
-1. 30
+    _ 29
 
-1. 31
+    _ 30
 
-1. 32
+    _ 31
 
-1. 33
+    _ 32
 
-1. 34
+    _ 33
 
-1. 35
+    _ 34
 
-1. 36
+    _ 35
 
-1. 37
+    _ 36
 
-1. 38
+    _ 37
 
-1. 39
+    _ 38
 
-1. 40
+    _ 39
 
-1. 41
+    _ 40
 
-1. 42
+    _ 41
 
-1. 43
+    _ 42
 
-1. 44
+    _ 43
 
-1. 45
+    _ 44
 
-1. 46
+    _ 45
 
-1. 47
+    _ 46
 
-1. 48
+    _ 47
 
-1. 49
+    _ 48
 
-1. 50
+    _ 49
 
-1. 51
+    _ 50
 
-1. 52
+    _ 51
 
-1. 53
+    _ 52
 
-1. 54
+    _ 53
 
-1. 55
+    _ 54
 
-1. 56
+    _ 55
 
-1. 57
+    _ 56
 
-1. 58
+    _ 57
 
-1. 59
+    _ 58
 
-1. 60
+    _ 59
+
+    _ 60
+
+1. The ſolutions.
 
 **Types of content**
 
